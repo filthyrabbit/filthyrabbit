@@ -6,5 +6,5 @@ dont talk to me about security breach unlesss its about burntrap i hate security
 <img src="https://files.catbox.moe/dgzc0b.png"><br/>
   </center>
    <p align="center">
-<p>**i have rabies i will bite you**</p>
+     i have rabies
 </center>
