@@ -1,3 +1,3 @@
-![](https://files.catbox.moe/f8ux70.jpg)
-
-OH MY GOD THEYRE MAKING FUNTIME FOXY STRAIGHT
+![](https://files.catbox.moe/ggqggq.jpg)
+dont talk to me about security breach unlesss its about
+burntrap i hate security breach
